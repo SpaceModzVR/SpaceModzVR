@@ -1,6 +1,3 @@
 Discord
 
-
-
-
-r
+Join The Discord
